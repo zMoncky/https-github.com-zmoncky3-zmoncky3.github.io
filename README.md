@@ -1,2 +1,2 @@
-# https://zmoncky3.github.io
+# zmoncky@github.com
 OGUIA!
